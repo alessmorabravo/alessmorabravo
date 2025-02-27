@@ -3,7 +3,7 @@
 
 - 💬 Puedes preguntarme sobre **HTML, CSS, Javascript**
 
-- 📫 Cómo llegar a mí **morabravoalessandro@gmailc.om**
+- 📫 Cómo llegar a mí **morabravoalessandro@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
